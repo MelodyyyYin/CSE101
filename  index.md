@@ -10,7 +10,7 @@ During my freetime, I like watching movies. The recently movies I have watched a
 
 Also, I have other activities could do in free time, they are
 1. golf
-2. hang out with friends
+2. hang out with friend
 3. painting
 4. play with my cat
 5. watch youtube
